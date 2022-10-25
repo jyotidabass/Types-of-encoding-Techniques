@@ -1,0 +1,1 @@
+# Types-of-encoding-Techniques
